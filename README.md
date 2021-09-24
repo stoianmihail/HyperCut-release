@@ -1,3 +1,3 @@
 # HyperCut
 
-[Download](https://drive.google.com/u/1/uc?id=1KV-tbcftt7PMRkcJy1QU7dGbAhwVSQuJ&export=download)
+[Download](https://drive.google.com/file/d/1m4SMd0AJRljBcU1Ndx8prK1N9tRWx5uE/view?usp=sharing)
